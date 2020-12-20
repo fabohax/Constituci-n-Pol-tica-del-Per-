@@ -1,5 +1,6 @@
-CONSTITUCIÓN POLÍTICA DEL PERÚ
-promulgada el 29 de diciembre de 1993
+*CONSTITUCIÓN POLÍTICA DEL PERÚ*
+
+Promulgada el 29 de diciembre de 1993
 
 
 TÍTULO I
