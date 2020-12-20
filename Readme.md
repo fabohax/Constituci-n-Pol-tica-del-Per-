@@ -1,4 +1,4 @@
-*CONSTITUCIÓN POLÍTICA DEL PERÚ*
+***CONSTITUCIÓN POLÍTICA DEL PERÚ***
 
 Promulgada el 29 de diciembre de 1993
 
